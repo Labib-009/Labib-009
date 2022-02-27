@@ -9,5 +9,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...Anything
 - 📫 How to reach me: ...[Facebook](https://www.facebook.com/llaabbiibb/)
 - 😄 Pronouns: ...He/Him
-- ⚡ Fun fact: ...
--->
+
